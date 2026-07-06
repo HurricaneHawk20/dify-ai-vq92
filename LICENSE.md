@@ -1,4 +1,4 @@
-# 
+# Nuevo Dify extensiones. Con agentes colaborativos y IA explicable — optimizado para el máximo rendimiento y eficiencia.
 
 
 
